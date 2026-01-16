@@ -1,4 +1,4 @@
-# Session 1=2: 01-15-2026:
+# Session 2: 01-15-2026:
 
 ## After Killing the Old & Blind Lizard Man:
 
