@@ -22,5 +22,13 @@ Hugo put the boot to him, knocking him down prone. Mystiel finishes the job with
 
 There's one more, attempting poorly to hide behind a rock. He has a stone tomahawk in his hand. Hugo yells "we come in peace," but all it does is hiss at us. Looks a little thicker and lighter than the others. Hugo steps into a little pool of water, which seems to enrage it, and it comes at him (maybe it's lizardmen eggs?)
 
-Hugo goes to strike, but fumbles (double 2's). Mystiel hits it and it falls over dead.
+Hugo goes to strike, but fumbles (double 2's). Mystiel hits it and it falls over dead. Hugo and Mystiel smash the rest of the eggs to prevent further issues.
 **_End Combat_**
+
+## Past the Rookery:
+
+The room narrows into a path, we can see a round door similar to the one we encountered at the stairs at the entrance to the cavern. Hugo goes down to it (slight slope) and finds a small hole in the center of the door. He slides the rod in. Pushing hard, he is able to unlock the door and we can slide it open about half way. Hugo removes the rod and we enter the next, larger room.
+
+##
+
+Inside this room, is a slight putrid smell, different from the stench of the lizard men. We can see a bricked lip of some type of pond/bath(?). We start moving into the room, slowly.
